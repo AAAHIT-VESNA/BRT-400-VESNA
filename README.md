@@ -1,5 +1,5 @@
 # 小天更新维护日志
-![image](https://github.com/FlorenceFranklin-hub/BRT-400/blob/main/%E5%B0%8F%E5%A4%A9%E4%BA%BA%E8%AE%BE)
+![image](小天2025.jpg)
 
 > **Выходила на берег Катю́ша Vykhodila na bereg Katyusha**     
 > **喀秋莎站在峻峭的岸上**  
