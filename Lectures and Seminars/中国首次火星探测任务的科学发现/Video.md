@@ -1,2 +1,2 @@
-test video link
-https://drive.google.com/file/d/1yXmcWYSW7k8c9cArF5Hc3At2x3WTw80Q/view?usp=sharing
+lecture video link
+https://drive.google.com/file/d/1IKWk93rZ3bqxBMv2CMVeLvXKo1AxzYcj/view?usp=sharing
